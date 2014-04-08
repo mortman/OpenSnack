@@ -17,7 +17,7 @@ Bran Muffins
 </pre>
 
 Instructions:
-Place an oven rack in the middle of the oven and heat the oven to 375°. Grease a standard size muffin pan or line the cups with unbleached baking cups (I love my Chicago Metallic commercial muffin pans—I spray them with Spectrum Naturals high heat canola spray oil and the muffins come right out of the pan, leaving hardly any mess).
+Place an oven rack in the middle of the oven and heat the oven to 375°. Grease a standard size muffin pan or line the cups with unbleached baking cups.
 
 Combine the wheat bran, oat bran, whole wheat flour, baking soda, baking powder, and salt in a large bowl and set aside. Combine the eggs, milk, yogurt, canola oil, molasses, and honey in a small bowl and mix well. (Note: you can use all honey or all molasses instead if desired.)
 
