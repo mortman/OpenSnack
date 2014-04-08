@@ -1,16 +1,17 @@
 Yeast Raised Donuts
 (From my class at Zingermans)
 
-Ingredients		    Measurement	Weight
-Milk			         3/4 cup	    .38 lb.
-Water	 		       1/4 cup	    .12 lb.
-Yeast			        1 1/2 tsp.	 .02 lb.
-Butter			       1/4 cup	    .12 lb.
-Sugar			        1/4 cup	    .12 lb.
-Salt			         1 tsp.		   .02 lb.
-Eggs (whole)       1 each	     1 each
-All Purpose Flour	3 1/2 cups	 1.08 lb.	
-
+<pre>
+Ingredients		    Measurement	i    Weight
+Milk	                    3/4 cup	    .38 lb.
+Water	 		    1/4 cup	    .12 lb.
+Yeast			    1 1/2 tsp.	    .02 lb.
+Butter			    1/4 cup	    .12 lb.
+Sugar			    1/4 cup	    .12 lb.
+Salt			    1 tsp.	    .02 lb.
+Eggs (whole)                1 each	     1 each
+All Purpose Flour	    3 1/2 cups	     1.08 lb.	
+</pre>
 
 
 Mixing:
