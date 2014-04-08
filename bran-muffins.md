@@ -1,5 +1,6 @@
 Bran Muffins
 
+<pre>
 2 cups (5¾oz / 164g) organic wheat bran
 1 cup (5oz / 141g) organic oat bran
 1 cup (6oz / 170g) organic whole wheat flour
@@ -13,6 +14,7 @@ Bran Muffins
 1/3 cup (3¾oz / 108g) sweet molasses (not blackstrap) or cane syrup
 1/3 cup (3¾oz / 108g) honey
 1 teaspoon (6g) pure vanilla extract (optional)
+</pre>
 
 Instructions:
 Place an oven rack in the middle of the oven and heat the oven to 375°. Grease a standard size muffin pan or line the cups with unbleached baking cups (I love my Chicago Metallic commercial muffin pans—I spray them with Spectrum Naturals high heat canola spray oil and the muffins come right out of the pan, leaving hardly any mess).

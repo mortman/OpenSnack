@@ -1,5 +1,5 @@
 Pumpkin Chocolate Chip Muffins
-
+<pre>
 1 cup sugar
 1 tsp baking soda
 1/4 tsp salt
@@ -14,6 +14,7 @@ pinch of clove
 2 eggs
 1/2 cup (1 stick) melted butter
 1 cup pumpkin
+</pre>
 
 Pre-heat oven to 350^F.
 
