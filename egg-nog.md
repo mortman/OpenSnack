@@ -19,6 +19,6 @@ Ladle into cups and serve with spoons.
 
 
 Notes:
-If the egg whites and cream were stiff enough, you shouldn't be able to pour this, but rather need to scoop it.
+If the egg whites and cream were stiff enough, you shouldn't be able to pour this, but you will need to scoop it instead.
 Duck eggs make this even richer.
 Leftovers make excellent French Toast.
