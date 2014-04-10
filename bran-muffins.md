@@ -17,14 +17,18 @@ Bran Muffins
 </pre>
 
 Instructions:
-Place an oven rack in the middle of the oven and heat the oven to 375°. Grease a standard size muffin pan or line the cups with unbleached baking cups.
+Place an oven rack in the middle of the oven and heat the oven to 375°.
+Grease a standard size muffin pan or line the cups with unbleached baking cups.
 
-Combine the wheat bran, oat bran, whole wheat flour, baking soda, baking powder, and salt in a large bowl and set aside. Combine the eggs, milk, yogurt, canola oil, molasses, and honey in a small bowl and mix well. (Note: you can use all honey or all molasses instead if desired.)
+Combine the wheat bran, oat bran, whole wheat flour, baking soda, baking powder, and salt in a large bowl and set aside.
+Combine the eggs, milk, yogurt, canola oil, molasses, and honey in a small bowl and mix well. 
 
 Pour the wet ingredients into the dry ingredients and mix with a rubber spatula just until combined.
 
-Generously fill the muffin cups with batter. I use a large stainless steel scoop, which is also great for portioning out cookie dough.
+Generously fill the muffin cups with batter. (A disher/old fashioned ice cream scoop is great for this)
+Bake until a toothpick inserted in the center comes out clean, about 20 to 25 minutes. 
+Cool the muffins in the pan for 10 to 15 minutes, then carefully remove them and serve warm, or let them cool on a wire rack.
 
-Bake until a toothpick inserted in the center comes out clean, about 20 to 25 minutes. Cool the muffins in the pan for 10 to 15 minutes, then carefully remove them and serve warm, or let them cool on a wire rack.
-
+Notes:
 Also really good with raisins, craisins, blueberries or raspberries added in.
+You can use all honey or all molasses instead if desired.
