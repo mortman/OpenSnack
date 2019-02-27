@@ -15,7 +15,7 @@ when dissolved, add and beat at least 3 minutes:
 
 1&1/2 cups sifted all-purpose flour
 
-when dissolved, add and beat at least 3 minutes:
+when thoroughly mixed, add and beat at least 3 minutes:
 1&1/2 cups sifted all-purpose flour
 2 tablespoons soft butter
 1/2 teaspoon salt
