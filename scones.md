@@ -12,7 +12,15 @@ Scones (yields 16-18)
 
 Preheat oven to 365F
 
-Mix flour, salt and baking powder. Add butter and work by hand into the flour until a sandy texture. In a separate bowl mix together milk, sugar, egg and vanilla. Reserving 2-3 tablespoons of the liquid, add milk mixture to the flour and mix until it comes together and is not sticky.  DO NOT OVERWORK.  Roll out in a sheet about an 1” thick. Cut into scones (2.5” is ideal) Place on baking sheet, brush the tops with reserved  milk mixture. 
+Mix flour, salt and baking powder. Add butter and work by hand into the flour until a sandy texture. 
+In a separate bowl mix together milk, sugar, egg and vanilla. 
+Reserving 2-3 tablespoons of the liquid, add milk mixture to the flour and mix until it comes together and is not sticky.  
+DO NOT OVERWORK.  
+
+Roll out in a sheet about an 1” thick. 
+Cut into scones (2.5” is ideal).
+
+Place on baking sheet, brush the tops with reserved  milk mixture. 
 
 
 Bake for 17 mins.
