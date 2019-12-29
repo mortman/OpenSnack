@@ -6,7 +6,7 @@ Scones (yields 16-18)
 5 Tblsp + 1 tspn baking powder 
 2 1/2 tspn table salt 
 1 1/2 cups milk 
-3/4 cup + 2 Tblsp extra-fine sugar (regular table sugar works too; measure out 1 cup & remove 2 Tblsp to save time)
+3/4 cup + 2 Tblsp extra-fine sugar
 1 whole egg 
 1 tspn vanilla extract 
 
