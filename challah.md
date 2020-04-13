@@ -17,10 +17,7 @@ about 4 cups water
 Combine and then knead until you think your arms are going to fall off and then knead some more. 
 The dough should be very elastic and even a bit sticky.
 
-Clean mixing bowl and spray with PAM.
-
-
-Place in covered bowl,  make sure dough has PAM coating on it.and allow to rise about 1 1/2 to 2 hours
+Place in oiled bowl,  make sure dough has some olive oil on it. Cover and allow to rise about 1 1/2 to 2 hours
 
 Punch down and knead again then return to covered bowl, allow to rise as in the step above.
 
@@ -34,7 +31,5 @@ Coat challahs again with egg wash and use poppy seeds if desired.
 
 Bake for 35 to 60 minutes, depends on your oven and challah size.
 
-These days I rarely make the 5 pound variety. So below is the change for using 2 1/2 pound of flour.
-
-Divide ingredients by two, but use three eggs.
+If making a half recipe use three eggs.
 </pre>
